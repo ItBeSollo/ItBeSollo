@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **Discord: shelteredkani or Sollo#4837**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
